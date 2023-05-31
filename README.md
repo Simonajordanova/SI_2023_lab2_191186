@@ -1,1 +1,1 @@
-# SI_2023_lab2_191186
+Simona Jordanova 191186
